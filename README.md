@@ -1,0 +1,1 @@
+Created solutions for https://github.com/Tsiqara/Discrete-Mathematics#:~:text=1%20minute%20ago-,%E1%83%90%E1%83%9B%E1%83%9D%E1%83%AA%E1%83%90%E1%83%9C%E1%83%94%E1%83%91%E1%83%98%2020.pdf,-Add%20files%20via
